@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ivandrofly
+- 👋 Hi, I’m Ivandro Jao / @ivandrofly
 - 👀 I’m interested in 0s and 1s
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on 🤔💭
